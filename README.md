@@ -1,4 +1,4 @@
-Adam Dabdoub is now coresponsible for this project, welcome !!!!
+Christopher Pereira and Adam Dabdoub are now coresponsible for this project, welcome !!!!
 Hopfully he got more time that I have over the last year :-)
 
 
